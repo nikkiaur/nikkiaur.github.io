@@ -9,3 +9,11 @@ Seventeen (Korean: 세븐틴; stylized in all caps or as SVT) is a South Korean 
 ### THEIR MV'S
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gRnuFC4Ualw?si=hE33uG9n7kotjU8n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VCDWg0ljbFQ?si=GTHkBwJY1nggVbRc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+### THEIR VARIETY SHOW (GOING SEVENTEEN)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BeDkwcm-nJ4?si=h7foNlSr7--TOGqZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/78LM7AyE6-g?si=SqHVj8S-kU0sFCaM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
