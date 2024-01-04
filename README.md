@@ -9,4 +9,4 @@ Seventeen (Korean: 세븐틴; stylized in all caps or as SVT) is a South Korean 
 
 THEIR MV'S
 
-[SEVENTEEN (세븐틴) 'HOT' Official MV](https://youtu.be/gRnuFC4Ualw?si=fWEcZWG1Xe3bTsM6)
+https://youtu.be/gRnuFC4Ualw?si=1S4QqwPBCk0533AK
